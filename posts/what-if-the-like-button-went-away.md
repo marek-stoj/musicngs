@@ -32,8 +32,15 @@ Metametaverse? 🤔
 
 # Ficeberg
 
-![IMG-0066.jpg](what-if-the-like-button-went-away/IMG-0066.jpg)
+![IMG-0066.jpg](what-if-the-like-button-went-away/IMG-0066-small.jpg)
 
 # "Jakby nie stało się nic" by Tomek Lipiński
+
+```
+      ||
+PLAY  ||  ME :)
+      ||
+      \/
+```
 
 [!["Jakby nie stało się nic" by Tomek Lipiński](https://img.youtube.com/vi/8ETDLxrjQSs/0.jpg)](https://www.youtube.com/watch?v=8ETDLxrjQSs)
