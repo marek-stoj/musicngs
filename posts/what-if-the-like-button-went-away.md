@@ -32,7 +32,7 @@ Metametaverse? 🤔
 
 # Ficeberg
 
-![IMG-0066.jpg](what-if-the-like-button-went-away/IMG-0066-small.jpg)
+<img src="what-if-the-like-button-went-away/IMG-0066-small.jpg" width="480" />
 
 # "Jakby nie stało się nic" by Tomek Lipiński
 
