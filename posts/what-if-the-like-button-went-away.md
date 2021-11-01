@@ -30,4 +30,9 @@ And who knows what happens if and when... Facebook, ekhm, Metaverse, follows.
 
 Metametaverse? 🤔
 
-![IMG-0066.jpg](assets/IMG-0066.jpg)
+# Ficeberg
+
+![IMG-0066.jpg](what-if-the-like-button-went-away/IMG-0066.jpg)
+
+# "Jakby nie stalo się nic" by Tomek Lipiński
+
