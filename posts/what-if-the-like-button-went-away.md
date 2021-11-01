@@ -34,5 +34,6 @@ Metametaverse? 🤔
 
 ![IMG-0066.jpg](what-if-the-like-button-went-away/IMG-0066.jpg)
 
-# "Jakby nie stalo się nic" by Tomek Lipiński
+# "Jakby nie stało się nic" by Tomek Lipiński
 
+[!["Jakby nie stało się nic" by Tomek Lipiński](https://img.youtube.com/vi/8ETDLxrjQSs/0.jpg)](https://www.youtube.com/watch?v=8ETDLxrjQSs)
