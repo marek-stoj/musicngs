@@ -30,18 +30,4 @@ And who knows what happens if and when... Facebook, ekhm, Metaverse, follows.
 
 Metametaverse? 🤔
 
-![IMG-0066.jpg](What%20If%20The%20Like%20Button%20Went%20Away%202c8b7dc4812341c59db286022c9eecf4/IMG-0066.jpg)
-
-PS Pretty please - do not "like" this post 😌
-
-PS Uprasza się o nie "lubowanie" tego wpisu 😌
-
----
-
-PSX And for other geeks out there, remember that the 2 hardest problems in IT (and in the World, I'd argue) are:
-
-1. Naming things.
-2. Cache invalidation.
-3. Off-by-one errors.
-
-😅
+![IMG-0066.jpg](assets/IMG-0066.jpg)
