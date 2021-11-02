@@ -1,5 +1,7 @@
 # What If The Like Button Went Away
 
+_v0.7_
+
 What if the like button went away.
 
 What if we only had emojis that express how we feel about the content being shared and **not** how high (or low) we rate it.
