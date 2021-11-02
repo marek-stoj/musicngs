@@ -32,7 +32,7 @@ And who knows what happens if and when... Facebook, ekhm, Metaverse, follows.
 
 Metametaverse? 🤔
 
-What if we replaced the 'like button' with the 'I am grateful that you shared it'.
+What if we replaced the 'I like it button' with the 'I am grateful that you shared it'.
 
 # "Jakby nie stało się nic" by Tomek Lipiński
 
