@@ -1,6 +1,6 @@
-# What If The Like Button Went Away
+_v0.707_
 
-_v0.7_
+# What If The Like Button Went Away
 
 What if the like button went away.
 
@@ -32,9 +32,7 @@ And who knows what happens if and when... Facebook, ekhm, Metaverse, follows.
 
 Metametaverse? 🤔
 
-# Ficeberg
-
-<img src="what-if-the-like-button-went-away/IMG-0066-small.jpg" width="480" />
+What if we replaced the 'like button' with the 'I am grateful that you shared it'.
 
 # "Jakby nie stało się nic" by Tomek Lipiński
 
@@ -46,3 +44,7 @@ PLAY  ||  ME :)
 ```
 
 [!["Jakby nie stało się nic" by Tomek Lipiński](https://img.youtube.com/vi/8ETDLxrjQSs/0.jpg)](https://www.youtube.com/watch?v=8ETDLxrjQSs)
+
+# Ficeberg
+
+<img src="what-if-the-like-button-went-away/IMG-0066-small.jpg" width="480" />
